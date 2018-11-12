@@ -7,3 +7,6 @@ got sick of preparing resume in winword [Monologue: "ya.. it is ok to have momen
 and preparing this to help myself
 
 gonna try js based frameworks...  <Monologue: "many say JS Rocks!! lemme try it out..">
+
+
+Tagline planned - resume 4mWerUR
